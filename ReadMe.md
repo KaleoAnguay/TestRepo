@@ -1,4 +1,4 @@
-# Why did I get paired up with the idiot?
+We are both the shark!
 
 
 #Hody Partner
